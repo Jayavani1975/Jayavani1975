@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Jayavani.  I'm worsking as medical trasncriptionist.
+- 🌱 I’m currently learning data analysis.
